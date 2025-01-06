@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @cackr
+- 🌱 I’m currently learning to create a website
+- ⚡ Fun fact: Aku adalah seorang jomblo
+- kadang saya suka untuk menDDoS
